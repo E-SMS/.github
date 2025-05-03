@@ -1,1 +1,2 @@
-##Temporally cancelled, no updates of the project for now
+## Temporally cancelled.
+No updates of the project for now
