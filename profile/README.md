@@ -1,2 +1,1 @@
-## Temporally cancelled.
-No updates of the project for now
+## The messaging app you wished no third person is looking
